@@ -1,4 +1,4 @@
-Greetings! 👋 I'm Esha Akram
+Hello! 👋 I'm Esha Akram
 
 💼 Linkedin: https://www.linkedin.com/in/esha-akram-4672b9205/
 📬 Email me at: eshawebengineer@gmail.com
